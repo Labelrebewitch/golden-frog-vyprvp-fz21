@@ -1,4 +1,4 @@
-
+Enhance your StrongVPN experience with professional StrongVPN Utility | double-VPN + camouflage-mode, the #1 utility. Includes double-VPN and camouflage-mode for a safer and more
 
 
 
